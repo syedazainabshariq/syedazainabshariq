@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @syedazainabshariq
-- 👀 I’m interested in learning forward
-- 🌱 I’m currently learning web developement
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning Agentic AI
 - 💞️ I’m looking to collaborate on people who are in my field to work withn them
 - 📫 How to reach me? right here:szainabshah806@gmail.com
 - 😄 Pronouns: she/her
