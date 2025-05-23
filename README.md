@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on people who are in my field to work withn them
 - 📫 How to reach me? right here:szainabshah806@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I don't like white colour
+- ⚡ Fun fact: I am 14 (yup I do all these stuff)
   
 
 <!---
