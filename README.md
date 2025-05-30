@@ -5,6 +5,7 @@
 - 📫 How to reach me? right here:szainabshah806@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I started coding to build apps. Now I build apps to avoid people. 😎👨‍💻
+- 📖 Want to read some of my medium posts? Here you can read them here: https://medium.com/@szainabshah806
   
 
 <!---
