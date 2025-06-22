@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @syedazainabshariq
+- 👋 Hi, I’m @syedazainabshariq AKA Zainab
 - 👀 I’m interested in AI
 - 🌱 I’m currently in my first ever internship. (BQ-2025)
 - 💞️ I’m looking to collaborate on people who are in my field to work withn them
